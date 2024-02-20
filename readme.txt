@@ -1,1 +1,1 @@
-READ ME DAMMIT
+Thanks for reading me!
